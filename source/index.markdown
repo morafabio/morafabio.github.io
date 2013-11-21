@@ -19,6 +19,7 @@ I would be very glad to get in touch, *feel free to contact me!*
 * On [Facebook](http://facebook.com/fabio.mm)
 * On [Twitter](http://twitter.com/morafabio)
 * On [LinkedIn](http://goo.gl/dIXH)
+* On [Spotify](https://play.spotify.com/user/fabio.mm)
 * On [Last.fm](http://www.lastfm.it/user/fabiomm)
 
 See you!

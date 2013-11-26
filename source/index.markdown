@@ -18,6 +18,9 @@ I would be very glad to get in touch, *feel free to contact me!*
 * By phone at `(+39) 340-1504097`
 * On [Facebook](http://facebook.com/fabio.mm)
 * On [Twitter](http://twitter.com/morafabio)
+* On [Slideshare](http://www.slideshare.net/fabio.mm)
+* On [Stack Overflow](http://stackoverflow.com/users/474376/fabio?tab=activity)
+* On [GitHub](https://github.com/morafabio)
 * On [LinkedIn](http://goo.gl/dIXH)
 * On [Spotify](https://play.spotify.com/user/fabio.mm)
 * On [Last.fm](http://www.lastfm.it/user/fabiomm)
